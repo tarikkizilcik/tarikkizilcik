@@ -1,3 +1,5 @@
+![tarikkizilcik](https://count.getloli.com/get/@tarikkizilcik.github)
+
 ### **Connect with me:**
 
 [<img align="left" height="22" width="22" src="https://cdn.jsdelivr.net/npm/simple-icons@v5/icons/twitter.svg" />](https://twitter.com/tarikkizilcik)
